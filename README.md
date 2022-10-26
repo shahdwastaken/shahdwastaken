@@ -1,0 +1,4 @@
+- 👋 hiii, I’m @shahdwastaken ʚ(｡˃ ᵕ ˂ )ɞ
+- 👀 i'm interested in creating and printing tools to help out disabled people!( ˶ˆ꒳ˆ˵ )
+- 🌱 i'm currently learning how to code and 3d print :)
+- 💞️ have a nice day!! (*ᴗ͈ˬᴗ͈)ꕤ*.ﾟ
